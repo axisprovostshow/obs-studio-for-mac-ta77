@@ -1,4 +1,4 @@
-# 
+# Get the ultimate OBS Studio for macOS extension with vip OBS Studio for macOS Extension | shortcut-customization + noise-reduction. Featuring shortcut-customization and
 
 
 
